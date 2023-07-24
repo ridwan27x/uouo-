@@ -1,0 +1,2 @@
+# uouo-
+tugas data diri
